@@ -2,7 +2,7 @@
 
 Activating various versions of Windows and Microsoft Office is made simpler with tools like KMSPico (KMS Activator). With this utility, you can activate Windows 11, 10, 8, 8.1, and 7 using keys such as the Windows 10 Pro License Key, Windows 10 Home Product Key Free, or the Windows 8.1 Serial Key. Additionally, KMSPico allows you to activate Microsoft Office editions, including versions like Office 2016 and Office 2007, by using the corresponding product keys.
 
-➤➤ [Download KMSPico](https://kmspico.pages.dev)
+➤➤ [Download KMSPico](https://kmspicofficial.pages.dev)
 
 KMSPico Download
 
